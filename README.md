@@ -1,3 +1,3 @@
 # AllTheSingleDisks
 
-*Does the Milky-Way disk break up into rings?*
+*If you liked it you should have found a ring in it.*
